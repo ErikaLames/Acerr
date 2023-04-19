@@ -1,3 +1,3 @@
 Erika Lames
-PATRICK JAMES DAMA
+Patrick James Dama
 Arianne Grace Luna
